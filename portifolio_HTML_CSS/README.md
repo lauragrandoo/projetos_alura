@@ -2,4 +2,11 @@
 
 ### Reprodução de Portifolio:
 
-![image](https://github.com/user-attachments/assets/a792207b-7634-48b6-9c75-e6397e9fe679)
+<br>
+
+![image](https://github.com/user-attachments/assets/8a99af85-b464-452d-8b92-d989a1a0b420)
+
+<br>
+
+![image](https://github.com/user-attachments/assets/0f0a9b2a-4cff-453b-9477-dfd8a1c837d3)
+
